@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @avinavkumar0045
 - 👀 I’m interested in defense
-- 🌱 I’m currently learning computer languages
+- 🌱 I’m currently a student of computer science 
 - 💞️ I’m looking to collaborate on web developing projects
 - 📫 How to reach me - avinavkumar0045@gmail.com
 - 😄 Pronouns: He/His
